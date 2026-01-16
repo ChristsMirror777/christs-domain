@@ -1,0 +1,1 @@
+[[gospel-easy-peasy-slug]]
